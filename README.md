@@ -1,0 +1,1 @@
+# karo-purple-02500
